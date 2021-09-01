@@ -1,0 +1,1 @@
+# KDDI_intern_competition_tips
